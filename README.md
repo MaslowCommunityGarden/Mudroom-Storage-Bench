@@ -2,7 +2,7 @@
 
 A storage bench to live in mudroom/entry way
 
-I have yet to cut this as the maslow arrives next week, but prepping all the projects.
+I have yet to cut this as the maslow arrives next weekish, but prepping all the projects.
 
 The back panel will be a mix of trim and a decorative hardboard and are more of there for reference.
 
